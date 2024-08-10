@@ -1,6 +1,4 @@
-- 👋 Hi, I’m sreya
-- 👀 I’m interested in 
-- 🌱 I’m currently learning 
-- 💞️ I’m looking to collaborate on 
+- 🌚 Hey, I’m sreya!
+- 👀 I’m interested in coding and developing and designing new things.
+- 🌱 I’m just a beginner.
 - 📫 How to reach me - @sreyaaa.__ (on ig)
-- ⚡ Fun fact: 
