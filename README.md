@@ -1,4 +1,4 @@
 - 🌚 Hey, I’m sreya!
-- 👀 I’m interested in coding and developing and designing new things.
+- 👀 I’m interested in coding, developing and designing new things.
 - 🌱 I’m just a beginner.
 - 📫 How to reach me - @sreyaaa.__ (on ig)
